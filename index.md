@@ -10,7 +10,7 @@ EWHA SCHOOL OF BUSINESS 21
 
 ### YOU CAN FIND ME HERE
 
-**📧E-mail** knhyun458@ewhain.net
+**📧E-mail** knhyun458@ewhain.net \
 **📷Instagram** [@gratia17_](https://www.instagram.com/gratia17_/?hl=ko)
 
 
