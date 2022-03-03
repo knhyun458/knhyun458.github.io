@@ -25,7 +25,7 @@ None
 ### CONTACT
 
 **📧E-mail** knhyun458@ewhain.net \
-**📷Instagram** [gratia17](https://www.instagram.com/gratia17_/?hl=ko)
+**📷Instagram** [@gratia17](https://www.instagram.com/gratia17_/?hl=ko)
 
 
 
