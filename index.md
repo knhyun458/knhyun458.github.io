@@ -12,6 +12,10 @@
 The Thinker :_Introverted, iNtuitive, Thinking, Perceiving_
 
 
+**INTEREST**
+
+
+
 ### EDUCATION
 
 EWHA SCHOOL OF BUSINESS 21
@@ -19,7 +23,7 @@ EWHA SCHOOL OF BUSINESS 21
 
 ### EXPERIENCE
 
-None
+- Proofreader, _Since May, 2021 ~ present._
 
 
 
