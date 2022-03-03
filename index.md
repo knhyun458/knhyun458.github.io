@@ -4,8 +4,10 @@
 
 **MOTTO** 
 > Keep true to the dreams of thy youth. by Friedrich von Schiller <
+\
 
 **INTP** \
+\
 THE THINKER :_Introverted, iNtuitive, Thinking, Perceiving_
 
 
@@ -23,7 +25,7 @@ None
 ### CONTACT
 
 **📧E-mail** knhyun458@ewhain.net \
-**📷Instagram** [@gratia17_](https://www.instagram.com/gratia17_/?hl=ko)
+**📷Instagram** [gratia17](https://www.instagram.com/gratia17_/?hl=ko)
 
 
 
