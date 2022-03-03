@@ -5,12 +5,13 @@
 
 ### Education
 
-'Univ' EWHA SCHOOL OF BUSINESS 21
+EWHA SCHOOL OF BUSINESS 21
 
 
 ### YOU CAN FIND ME HERE
 
-**Instagram** [@gratia17_].(https://www.instagram.com/gratia17_/?hl=ko)
+**📧E-mail** knhyun458@ewhain.net
+**📷Instagram** [@gratia17_](https://www.instagram.com/gratia17_/?hl=ko)
 
 ## Header 2
 ### Header 3
