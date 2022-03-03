@@ -1,11 +1,23 @@
-## NAHYUN 
+## NAHYUN
 
-娜見[^1]
+### ABOUT ME
+
+**MOTTO**\
+"Live the Life You Want to Live"
+
+**INTP** \
+THE THINKER :_Introverted, iNtuitive, Thinking, Perceiving_
 
 
 ### EDUCATION
 
 EWHA SCHOOL OF BUSINESS 21
+
+
+### EXPERIENCE
+
+None
+
 
 
 ### CONTACT
@@ -19,7 +31,6 @@ EWHA SCHOOL OF BUSINESS 21
 
 ```
 
-[^1]: 아름다울 나, 나타날 현
 
 - Bulleted
 - List
