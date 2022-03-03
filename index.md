@@ -1,6 +1,6 @@
 ## NAHYUN
 
-### ABOUT ME
+#### ABOUT ME
 
 **MOTTO** 
 > Keep true to the dreams of your youth. 
@@ -16,18 +16,18 @@ The Thinker : _Introverted, iNtuitive, Thinking, Perceiving_
 
 
 
-### EDUCATION
+#### EDUCATION
 
 EWHA SCHOOL OF BUSINESS 21
 
 
-### EXPERIENCE
+#### EXPERIENCE
 
 - Proofreader, _Since May, 2021 ~ present._
 
 
 
-### CONTACT
+#### CONTACT
 
 **📧E-mail** knhyun458@ewhain.net \
 **📷Instagram** [@gratia17_](https://www.instagram.com/gratia17_/?hl=ko)
