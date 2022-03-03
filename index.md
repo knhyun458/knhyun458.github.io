@@ -3,7 +3,7 @@
 ### ABOUT ME
 
 **MOTTO**\
-> Keep true to the dreams of thy youth.<
+> Keep true to the dreams of thy youth. <
 
 **INTP** \
 THE THINKER :_Introverted, iNtuitive, Thinking, Perceiving_
