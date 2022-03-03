@@ -3,13 +3,12 @@
 #### ABOUT ME
 
 **MOTTO** 
-> Keep true to the dreams of your youth. 
+> Keep true to the dreams of your youth. \
 > by Friedrich von Schiller
 \
 
 **INTP** \
-\
-The Thinker : _Introverted, iNtuitive, Thinking, Perceiving_
+The Thinker : _Introverted, iNtuitive, Thinking, Perceiving_\
 
 
 **INTEREST**
