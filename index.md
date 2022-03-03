@@ -8,7 +8,7 @@
 
 **INTP** \
 \
-THE THINKER :_Introverted, iNtuitive, Thinking, Perceiving_
+The Thinker :_Introverted, iNtuitive, Thinking, Perceiving_
 
 
 ### EDUCATION
