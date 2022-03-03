@@ -3,12 +3,12 @@
 娜見[^1]
 
 
-### Education
+### EDUCATION
 
 EWHA SCHOOL OF BUSINESS 21
 
 
-### YOU CAN FIND ME HERE
+### CONTACT
 
 **📧E-mail** knhyun458@ewhain.net \
 **📷Instagram** [@gratia17_](https://www.instagram.com/gratia17_/?hl=ko)
