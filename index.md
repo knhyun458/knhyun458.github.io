@@ -3,7 +3,7 @@
 ### ABOUT ME
 
 **MOTTO**\
-"Live the Life You Want to Live"
+> Keep true to the dreams of thy youth.<
 
 **INTP** \
 THE THINKER :_Introverted, iNtuitive, Thinking, Perceiving_
