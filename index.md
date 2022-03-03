@@ -2,8 +2,8 @@
 
 ### ABOUT ME
 
-**MOTTO**\
-> Keep true to the dreams of thy youth. <
+**MOTTO** 
+> Keep true to the dreams of thy youth. by Friedrich von Schiller
 
 **INTP** \
 THE THINKER :_Introverted, iNtuitive, Thinking, Perceiving_
