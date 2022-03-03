@@ -9,8 +9,6 @@
 **INTP** \
 The Thinker : _Introverted, iNtuitive, Thinking, Perceiving_
 
-**INTEREST**
-None
 
 ### EDUCATION
 EWHA SCHOOL OF BUSINESS 21
