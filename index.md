@@ -32,7 +32,7 @@ EWHA SCHOOL OF BUSINESS 21 \
 
 
 ### EXPERIENCE
- Proofreader, _Since May, 2021 ~._
+ Proofreader, _Since May, 2021 ~._ \
  HUB-HRer, _Since March, 2022 ~._
 
 
